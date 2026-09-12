@@ -1,4 +1,4 @@
-# AI Jobs Market Analysis 2025–2026
+# AI Jobs & Skills Market Analysis 2025–2026
 
 ## Description
 
